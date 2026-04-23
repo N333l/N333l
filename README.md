@@ -8,4 +8,4 @@
 
 🚀 Open to learning, contributing to open-source, and improving my coding skills
 
-📫 Reach me at: https://www.linkedin.com/in/neel-joshi-267a551b1/
+📫 Reach me at:[ https://www.linkedin.com/in/neel-joshi-267a551b1/](https://www.linkedin.com/in/neeeel/)
